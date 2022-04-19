@@ -1,4 +1,4 @@
 # Welcome
 
 
-#### Nothing special at moment, new projects comming soon.
+#### Nothing special at moment, new projects coming soon.
